@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Hi there 👋
+近期计划 个人博客 安卓+ php 
+https://github.com/yunnanmile/yunnanmile/issues 可以通过此链接在github直接给我留言
+
+QQ2821981550
